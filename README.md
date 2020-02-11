@@ -1,1 +1,2 @@
 # LOVEU
+Hello, I'm DANG TUAN KIET
